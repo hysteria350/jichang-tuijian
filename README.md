@@ -15,10 +15,10 @@
 
 [可乐云机场入口](https://k.ih004.com/#/register?code=wNSlQtWS)
 
-## 2. **[星辰 VPN](https://c.xcvpn.me/?path=register&code=pelpNJYX)**
+## 2. **[星辰 VPN](https://c.kilxs.cn/?code=NGQ75S26)**
 
 <div style="width:100%;text-align:center;">
-<a href="https://c.xcvpn.me/?path=register&code=pelpNJYX" target="_blank"><image src="/reami-logo.jpg" style="width: 50%" title="星辰 VPN 全球加速机场" alt="星辰 VPN 全球加速机场"/> </a>
+<a href="https://c.kilxs.cn/?code=NGQ75S26" target="_blank"><image src="/reami-logo.jpg" style="width: 50%" title="星辰 VPN 全球加速机场" alt="星辰 VPN 全球加速机场"/> </a>
 </div>
 
 -   主打速度，秒开 8K，延迟极低，无视高峰；
@@ -40,7 +40,7 @@
 -   至尊版：最高 500M 速率, 50 元/月， 1000G 流量/月; 139 元/季节，3000G 流量/季度; 222 元/半年，6000G 流量/半年; 399 元/年，12000G 流量/年;
 -   不限时流量包: 最高 500M 速率, 199 元/2000G
 
-<a href="https://c.xcvpn.me/?path=register&code=pelpNJYX" target="_blank">星辰 VPN 入口</a>
+<a href="https://c.kilxs.cn/?code=NGQ75S26" target="_blank">星辰 VPN 入口</a>
 
 ## 3. [宝贝云](https://web1.bby011.com/#/register?code=7mfs9Coe)
 
