@@ -1,6 +1,6 @@
 # 2026 年性价比机场推荐
 
-## 1. **[可乐云机场](https://coke.buyzur.com/#/register?code=wNSlQtWS)**
+## 1. **[可乐云机场](https://k.ih004.com/#/register?code=wNSlQtWS)**
 
 主打速度快，节点稳老牌机场，可定制原生千兆独享节点，亦有 9.9 元超值 400G 流量不限速，亦有不限时套餐选择，youtube 全天 4K&ChatGPT，IPLC 专线线路,专属客户端。注册试用满意再说,无需验证。
 
@@ -13,7 +13,7 @@
 -   一张电影票：￥ 29.9/半年、59.8/年，200G 流量/月;
 -   300GB 不限时：￥ 39.9/300GB。
 
-[可乐云机场入口](https://coke.buyzur.com/#/register?code=wNSlQtWS)
+[可乐云机场入口](https://k.ih004.com/#/register?code=wNSlQtWS)
 
 ## 2. **[星辰 VPN](https://c.xcvpn.me/?path=register&code=pelpNJYX)**
 
